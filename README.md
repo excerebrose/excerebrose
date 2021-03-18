@@ -6,4 +6,3 @@
 - 👯 I’m looking to collaborate on projects combining Motorcycles & AI
 - 💬 Ask me about how my India -> UK trip by road planning is going
 - 📫 How to reach me: harjyotsingh.com
-- 😄 Pronouns: hey/He/She/It whatever is fine
